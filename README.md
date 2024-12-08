@@ -1,2 +1,3 @@
 # Coraz-n-Nada
-Notas de contemplación y discernimiento David Gámez 2024
+Notas de contemplación y discernimiento  
+David Gámez 2024
